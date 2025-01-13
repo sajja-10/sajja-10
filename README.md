@@ -1,4 +1,4 @@
- - Hi, I’m Sajja. 
+ - 🙋‍♀️ Hi, I’m Sajja. 
  - 😊 Viva la vida!!
  - 🌿 Keep things simply yet meaningfully.
 <!---
